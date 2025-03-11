@@ -1,12 +1,12 @@
 # 🔬
 #𝗚𝗢𝗔𝗧𝘽𝙊𝙏𝙑2 𝘾𝙍É𝙀𝙍 𝙋𝘼𝙍﹝𝗡𝗧𝗞𝗛𝗔𝗡𝗚﹞
 # PROJECT CREATOR</h1>
-<img                                  src="https://i.ibb.co/jz98m1P/image.jpg"                                    alt="banner">   
+<img                                  src="https://i.postimg.cc/wjNyqPfr/bb3232ca132d5356322a45b9894ad95c.jpg"                                    alt="banner">   
 <h1 align="center"><img               src="" width="22px">
 
 # 𝙁𝘼𝘾𝘽𝙊𝙊𝙆 🎖PROFILE PHOTO</h1>
 <img                                  src="https://i.postimg.cc/4d6QYyWr/Screenshot-20250311-121803-Lite.jpg">
-<h1 align="center"><img               src="https://i.ibb.co/q1vtz6Q/image.jpg" width="22px">
+<h1 align="center"><img               src="https://i.postimg.cc/wjNyqPfr/bb3232ca132d5356322a45b9894ad95c.jpg" width="22px">
 
 # GOKU-BLACK {lycée moderne2 de soubré} 𝙈𝙔 𝙎𝘾𝙃𝙊𝙊𝙇                  𝙄𝙉𝙁𝙊𝙍𝙈𝘼𝙏𝙄𝙊𝙉:</h1>
 # 𝐂𝐇𝐀𝐓 𝐁𝐎𝐓 𝐌𝐄𝐒𝐒𝐄𝐍𝐆𝐄𝐑 
